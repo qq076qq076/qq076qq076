@@ -1,7 +1,7 @@
 ## 林鑫佑 ( David Lin )
 
- - 📖 Chien Hsin University of Science and Technology (2011/9~2015/6) 
- - 📍 Tiawan,Taipei
+ - 📖 Chien Hsin University of Science and Technology
+ - 📍 Manchester,UK
  - ✉️ qq076qq076@gmail.com
 
 ## 🌐 Socials:
